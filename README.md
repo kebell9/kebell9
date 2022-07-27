@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kebell9 (K.Bell)
-- 👀 I’m interested in learning my Drones and then Video and Photo Work
+- 👀 I’m interested in learning to my Drones (U88S - Beater Drone, Xil 198 Max 2, and Phantom 4 Pro +) Video and Photo Working capabilities
 - 🌱 I’m currently studying for the Part 107, as well as learning to fly manually and via the applications
 - 💞️ I’m looking to collaborate on... work projects, eventually.
 - 📫 How to reach me ... email, for now. 
