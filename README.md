@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kebell9 (K.Bell)
 - 👀 I’m interested in learning my Drones and then Video and Photo Work
-- 🌱 I’m currently studying for the Part 107 and Drones flying manually and via the applications
+- 🌱 I’m currently studying for the Part 107, as well as learning to fly manually and via the applications
 - 💞️ I’m looking to collaborate on... work projects, eventually.
 - 📫 How to reach me ... email, for now. 
 
